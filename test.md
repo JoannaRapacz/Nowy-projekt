@@ -1,0 +1,1 @@
+sprawzdzamy czy dziala
